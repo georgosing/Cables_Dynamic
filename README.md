@@ -67,6 +67,6 @@ DIVIDE(
 
 Автор
 Егор Салаев - BI-аналитик / Data Analyst  
-[hh.ru](https://hh.ru) · 
+[hh.ru](https://hh.ru/resume/04efea12ff095347040039ed1f6447376f364a) · 
 salaevei1999@gmail.com
 @georgosing
